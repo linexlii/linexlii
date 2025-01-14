@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=linexlii)
 <p align="center">
-      <img width="500" height="300" src="https://i.pinimg.com/736x/b4/b1/51/b4b15115a0afd55209a2b6191058d8d9.jpg"
+      <img width="200" height="200" src=https://s3.getstickerpack.com/storage/uploads/sticker-pack/kinich-genshin-impact/sticker_4.png?5bd52bb23101f7b272aa35a6a468c0af
 </p>
 <h4 align="center"> 𝙇𝙞𝙣𝙚𝙭\𝙃𝙪𝙖𝙣𝙞, 𝙝𝙚/𝙝𝙚𝙧, 7𝙬6, 𝙧𝙪𝙨/𝙚𝙣𝙜
 <h4 align="center">𝙘+𝙝, 𝙬2𝙞. 𝙄𝙛 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙨𝙞𝙩 𝙣𝙚𝙭𝙩 𝙩𝙤 𝙢𝙚, 𝙩𝙝𝙚𝙣 𝙨𝙞𝙩 𝙙𝙤𝙬𝙣, 𝙄 𝙙𝙤𝙣'𝙩 𝙢𝙞𝙣𝙙.. 𝙞𝙛 𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜.
